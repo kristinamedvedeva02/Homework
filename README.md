@@ -1,2 +1,0 @@
-# Homework
-Student22
